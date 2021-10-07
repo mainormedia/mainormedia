@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mainormedia
 - 👀 I’m interested in life off Mars.
 - 🌱 I’m currently learning sustainability.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on... hmmm... TBD.
 - 📫 How to reach me mainor.media
 
 <!---
